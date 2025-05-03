@@ -6,8 +6,3 @@
 - 💞️ Student at Virginia commonwealth University. Double majoring in Compture Science and Communcation Arts
 - 😄 Pronouns: My pronouns are She/Her.
 - ⚡ Fun fact: I'm orginally from Egypt. I moved to the United States with my family when I was 11 years old.
-
-<!---
-JodyAbdulrazek/JodyAbdulrazek is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
