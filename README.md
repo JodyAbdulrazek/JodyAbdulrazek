@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ... New programming languages.
 - 💞️ I’m looking to collaborate on ...  a creative coding project that blends art and technology.
 - 📫 How to reach me ... you can reach me on jodyabdelrazek8@gmail.com.
-- 💞️ Student at Virginia commonwealth University. Double majoring in Compture Science and Finance
+- 💞️ Student at Virginia commonwealth University. Double majoring in Compture Science and Communcation Arts
 - 😄 Pronouns: My pronouns are She/Her.
 - ⚡ Fun fact: I'm orginally from Egypt. I moved to the United States with my family when I was 11 years old.
 
