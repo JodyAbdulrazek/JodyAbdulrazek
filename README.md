@@ -3,5 +3,5 @@
 - 🌱 I’m currently learning ... New programming languages.
 - 💞️ I’m looking to collaborate on ...  a creative coding project that blends art and technology.
 - 📫 How to reach me ... you can reach me on jodyabdelrazek8@gmail.com.
-- 💞️ Student at Virginia commonwealth University. Double majoring in Compture Science and Mathematics. 
+- 💞️ Student at Virginia commonwealth University. Double majoring in Compture Science and Business. 
 - 😄 Pronouns: My pronouns are She/Her.
